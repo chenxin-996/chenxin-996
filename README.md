@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+在读大三，拒绝45°人生，从我做起！！！
+
+什么是45°人生？卷又卷不动，摆又摆不烂。。。
